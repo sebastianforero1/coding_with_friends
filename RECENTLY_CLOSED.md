@@ -1,6 +1,6 @@
 # 🧩 Issues cerrados recientemente
 
-> _Última actualización: **15 de junio de 2026 a las 10:17 a. m.**_
+> _Última actualización: **22 de junio de 2026 a las 09:42 a. m.**_
 
 ---
 
